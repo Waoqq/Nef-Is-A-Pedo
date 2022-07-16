@@ -7,8 +7,8 @@ Eventually, I ended up sending them. He said they were thicc, and we just talked
 -Kydae
  
  
- 
-https://cdn.discordapp.com/attachments/997635116740382750/997669173389951177/IMG_7961.png
+
+**The Tag of Nef** https://cdn.discordapp.com/attachments/997635116740382750/997669173389951177/IMG_7961.png
 
 https://cdn.discordapp.com/attachments/997635116740382750/997669173893279794/IMG_7966.png
 
